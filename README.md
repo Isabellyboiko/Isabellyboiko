@@ -11,7 +11,7 @@ Aqui estão algumas ideias para você começar:
 - 😝 pretendo no futuro, fazer faculdade de estética
 - 📫 insta: @isabelly_041
 - 😄 Pronomes: ela/dela
-- ⚡ Curiosidade: não torço pra time!
+- ⚡ Curiosidade: não torço pra time!🤣
 
 ![alura](www.alura.com.br)
 
